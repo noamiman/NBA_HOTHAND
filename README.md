@@ -41,6 +41,6 @@ Our brains are amazing — but they love to spot patterns, even when they’re n
 
 ## 👤 Author
 
-Noam Iman  
+Noamiman - Noam Felus  
 Basketball player & data enthusiast  
 Feel free to connect or reach out on [www.linkedin.com/in/](https://www.linkedin.com/in/noamiman/)!
